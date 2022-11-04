@@ -1,2 +1,1 @@
-# recipies
-A collection of recipies
+A collection of recipies gathered over the years.
