@@ -15,12 +15,12 @@ Ingredients
     * 25% surprises
 * 90 oz tomato sauce
 * 9 tomatoes, chopped
-    * substitute ? oz of canned, chopped tomatoes when lazy
+    * substitute 84 oz of canned, chopped tomatoes when lazy
 * 6 tsp cumin powder
 * 9 tbsp chili powder
 * 4 1/2 tsp black pepper
 * 6 tsp salt
-* 3 squares baker's unsweetened chocolate
+* 3 squares (1 1/2 oz) baker's unsweetened chocolate
 
 Directions
 ==========
